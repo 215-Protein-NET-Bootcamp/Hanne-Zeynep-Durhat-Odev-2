@@ -1,1 +1,1 @@
-# Homework-2
+# Hanne-Zeynep-Durhat-Odev-2
